@@ -32,7 +32,7 @@ Download, Read and Comment!
 -   [x] Round 25  (_Results Updated_)
 -   [x] Round 26  (_Results Updated_)
 -   [x] Round 27  (_Results Updated_)
--   [x] Round 28
+-   [x] Round 28  (_Tuesday Results Updated_)
 
 ## Premier League Clubs' Logos
 
